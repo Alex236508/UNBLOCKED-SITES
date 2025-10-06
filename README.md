@@ -1,2 +1,2 @@
 # UNBLOCKED-SITES
-~5000 links for 17 unblocked proxy sites
+Some of these links may not work, but most of them should.
